@@ -57,7 +57,7 @@ Easyslot.com เว็บเดิมพันออนไลน์ ยอดน
 
 <h3>เว็บอื่นๆ ในเครือของเรา</h3>
 
-<a href="https://ufascbx.com/">แทงบอลออนไลน์</a>
+<a href="https://queenclub88.com/">สล็อตออนไลน์</a>
 
 <a href="https://www.casinoroyale888.info/">คาสิโนออนไลน์</a>
 
